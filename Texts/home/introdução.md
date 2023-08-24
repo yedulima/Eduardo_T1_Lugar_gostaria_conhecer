@@ -1,3 +1,5 @@
+# Introdução sobre o Canadá
+
 O Canadá é um vasto país localizado na América do Norte, conhecido por sua beleza natural,
 diversidade cultural e sistema político estável. Com uma população de aproximadamente
 38 milhões de pessoas, o Canadá é o segundo maior país do mundo em extensão territorial.

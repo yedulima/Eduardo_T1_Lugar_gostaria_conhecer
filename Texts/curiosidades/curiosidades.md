@@ -1,5 +1,4 @@
-https://www.passagensimperdiveis.com.br/dicas-de-viagem/o-que-fazer-ottawa/
-https://feriasdecinema.com/index.php/2017/06/22/parques-nacionais-canada/
+# Curiosidades do Canadá
 
 Aqui falaremos algumas curiosidades sobre o Canadá.
 

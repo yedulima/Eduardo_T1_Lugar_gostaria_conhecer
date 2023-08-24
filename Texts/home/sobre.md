@@ -1,3 +1,5 @@
+# Sobre o Canadá
+
 O país é conhecido por sua política de imigração inclusiva e multiculturalismo. Uma
 variedade de grupos étnicos, culturas e línguas coexistem pacificamente no Canadá. O
 inglês e o francês são as línguas oficiais, sendo o francês predominante na província
